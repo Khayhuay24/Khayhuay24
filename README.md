@@ -1,5 +1,5 @@
 # ขายหวยดอทคอม
-| [ยินดีต้อนรับสู่]() | [Khayhuay](https://www.Khayhuay.com) |  
+| [ยินดีต้อนรับสู่](https://khayhuay24.github.io/huay24hr) | [Khayhuay](https://www.Khayhuay.com) |  
 |-|-|
 ### เว็บขายหวยที่ดีที่สุด เริ่มต้นแทงเพียง 1 บาท 
 ง่ายด้วยระบบออโต้ [Khayhuay](https://www.Khayhuay.com)
